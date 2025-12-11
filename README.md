@@ -1,4 +1,3 @@
-# J3K-Technologies-Same-day-cable-certification-Georgia-Installation-Partner
 
 # J3K Technologies | Cable compliance testing Georgia Service Provider | Emergency cable testing Georgia Contractor | Same-day cable certification Georgia Installation Partner
 
